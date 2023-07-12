@@ -1,1 +1,1 @@
-# Science2
+# Science2 - Assignments
